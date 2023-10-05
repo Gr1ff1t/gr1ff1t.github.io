@@ -14,4 +14,4 @@ Hello World
 ## Посилання на мене
 ### [Instagram](https://instagram.com/ular.qwe)
 ### [Telegram](t.me/Ularqwe)
-### [Steam](https://steamcommunity.com/id/Ular/)
+### [Steam]([https://steamcommunity.com/id/Ular/](https://steamcommunity.com/profiles/76561198980475241/)https://steamcommunity.com/profiles/76561198980475241/)
